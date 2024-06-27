@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Douglas-Rodrigues-7 😁
+## Bem-vindo(a) ao perfil do Douglas-Rodrigues-7 
 
  <div>
    <a href="https://github.com/Douglas-Rodrigues-7">
